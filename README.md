@@ -1,0 +1,2 @@
+# myndsolution
+Mynd Solution provides world class Finance and Accounting Service, it is the leading brand in finance and accounting service with industry specific solution. Our solutions are customized to meet client’s objectives. Mynd is proud of its capabilities as a specialized Finance &amp; Accounting solution partner. We offer our clients several unique differentiators under F&amp;A services that sets us apart form the rest. To avail the benefits of Finance and Accounting Service or to know more 
